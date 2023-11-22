@@ -51,4 +51,11 @@ I have strong analytical, math and communicative abilities, ability to learn qui
    }
    ```
 
+## Education
 
+- Kharkiv State University
+
+## Languages
+
+- English - B1
+- German - A2
